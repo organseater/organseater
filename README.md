@@ -1,4 +1,4 @@
-       BASIC DNI CRITERIA!
+       BASIC DNI CRITERIA
    homophobic, iransphobic, xenophobic, islamophobic, etc.
 
    Misogynistic, racist, sexist, ableist, discrimination, etc.
